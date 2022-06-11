@@ -67,6 +67,7 @@ IF YOU NOT COMFORTABLE WITH BASICS OF TCP/IP OR/AND BASICS PROGRAMMING KNOWLEDGE
 I WILL DO NOT GIVE ANY GUARANTEE. I ALSO ACCEPT NO LIABILITY FOR ANY DAMAGE TO SYSTEMS AND/OR NETWORKS!
 USE IT ON YOUR OWN RISK!
 
+>>> ~BLACK HAT UNITED~ <<<
 >>> FIGHT FOR UKRAINE: OPRussia <<< 
 --- S3R43o3 ---
 __________________________________________________________________________________________________________""")
